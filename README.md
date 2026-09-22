@@ -10,7 +10,7 @@ primeiro repositorio
 
 - fale comigo em **miltonc.martins@hotmail.com**
 
-- 📄 saiba mais sobre mim [https://www.linkedin.com/in/milton-correa-martins-754202bb/](https://www.linkedin.com/in/milton-correa-martins-754202bb/ )
+- 📄 saiba mais sobre mim [https://www.linkedin.com/in/milton-correa-martins-754202bb/](https://www.linkedin.com/in/milton-correa-martins/ )
 
 - curiosidades sobre mim **gosto muito de viajar e ouvir músicas**
 
